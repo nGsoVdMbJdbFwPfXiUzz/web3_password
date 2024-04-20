@@ -1,4 +1,4 @@
-voting
-philological
-bleakness
-figured
+sidetracks
+substantive
+mud's
+figure's
