@@ -1,4 +1,4 @@
-holly's
-lightly
-taro
-contravention
+rumblings
+wholeheartedly
+flippant
+reappraises
